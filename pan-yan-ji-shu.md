@@ -9,3 +9,9 @@
 ## 柔韧性
 
 * [髋关节灵活性动态拉伸](https://www.bilibili.com/video/BV1yV4y1K7GY/) - 初级髋关节灵活性动态拉伸教学视频
+
+
+
+## 保护
+
+* [如何进行顶绳保护](https://www.bilibili.com/video/BV1cU4y1T7V6/?vd\_source=cc9ad732b7e6a381cb3edfa030f4ba27) - 如何进行攀岩顶绳保护-Rock Climbing How to Belay
